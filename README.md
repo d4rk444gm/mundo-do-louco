@@ -10,7 +10,6 @@ Meu nome é Francisco Parra
 - Pretendo começar a trabalhar na área de TI 💻
 
 [](![image](https://github.com/user-attachments/assets/cab68613-c598-423a-81fc-4035efe203b3)
-)
 
 
 
