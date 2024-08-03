@@ -9,6 +9,8 @@ Meu nome é Francisco Parra
 - Atualmente estou trabalhando no Supermercado LAR
 - Pretendo começar a trabalhar na área de TI 💻
 
-[](![image](https://github.com/user-attachments/assets/c8573410-aca1-4413-812f-1f9528d3c5b9)
+[](![image](https://github.com/user-attachments/assets/b0cc0273-56f7-4a70-a667-5b223ec57d28)
+
+
 
 ### Entrar em contato comigo pelo 📧-Mail parra.machado@escola.pr.gov.br ###
